@@ -1,0 +1,2 @@
+# Veritabani-Yonetim-Foy3
+ 
